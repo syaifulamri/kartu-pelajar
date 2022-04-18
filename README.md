@@ -1,0 +1,11 @@
+# kartu_pelajar
+# kartu_pelajar
+# kartu_pelajar
+# kartu-pelajar-smkn1gs
+# kartu-pelajar-smkn1gs
+# Kartu-pelajar-smkn1gs
+# Kartu-pelajar-smkn1gs
+# kartu-pelajar
+# kartu-pelajar
+# kartu-pelajar
+# kartu-pelajar
